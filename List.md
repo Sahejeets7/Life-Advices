@@ -14,9 +14,10 @@
 14. If it were easy, everyone would do it
 15. Life is a mystery, embrace it
 16. Learning (change) is the only constant
-17. 
+17. Nevr defend. jUST Remain silent and give a little smile.
 18. keep going
-19. There are no rules to this thing - benjamin button.
+19. Always wear a small smile in public, and people. A smile can convey what words cannot.
+20. There are no rules to this thing - benjamin button.
 
 
 
