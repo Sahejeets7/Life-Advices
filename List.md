@@ -9,6 +9,14 @@
 9. People treat you based on what you allow
 10. Not everyone desrves access to you
 11. Change is painful only until you start
+12. Without commitment you will never start, but more importantly, without consistency you will never finish.
+13. Ease is a greater threat to progress than hardship
+14. If it were easy, everyone would do it
+15. Life is a mystery, embrace it
+16. Learning (change) is the only constant
+17. 
+18. keep going
+19. There are no rules to this thing - benjamin button.
 
 
 
