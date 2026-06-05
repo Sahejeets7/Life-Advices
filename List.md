@@ -18,6 +18,7 @@
 18. keep going
 19. Always wear a small smile in public, and people. A smile can convey what words cannot.
 20. There are no rules to this thing - benjamin button.
+21. Gain control of your mind, let go
 
 
 
