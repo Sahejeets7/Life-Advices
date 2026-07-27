@@ -20,6 +20,7 @@
 20. There are no rules to this thing - benjamin button.
 21. Gain control of your mind, let go of the need to control the outcome.
 22. Laminar Flow
+23. Every one has their own fight in their life, a silent battle.
 
 
 
